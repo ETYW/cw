@@ -1,0 +1,1 @@
+This is a note to spread the love for computing.
